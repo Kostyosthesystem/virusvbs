@@ -6,4 +6,4 @@ by chick93K(me)
 enjoy for prank
 this russian virus
 # screenshot virustotal
-(![alt text](https://i.ibb.co/7NS0mxb/3.png)
+![alt text](https://i.ibb.co/7NS0mxb/3.png)
